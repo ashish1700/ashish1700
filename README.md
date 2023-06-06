@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **About Endpoints**
 
-- 📫 How to reach me **ashish.behera1700@gmai.com**
+- 📫 How to reach me **ashish.behera1700@gmail.com**
 
 - ⚡ Fun fact **I think I am funny**
 
